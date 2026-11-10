@@ -1,2 +1,5 @@
-# learning-unlimited-days-in-Japanese
-Reading/Grammar/Writing/Vocabulary
+NOVEMBER 10 2026
+----------------
+
+-> VOCAB 10 
+-> a (hiragana writing)
