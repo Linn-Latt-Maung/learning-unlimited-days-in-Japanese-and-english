@@ -26,4 +26,5 @@ NOVEMBER 12 2026
 
 Homework - Memorize 10 Vocabs of today 
          - Write 1 Page of "u" (hiragana)
+         - Memorize 01_あいさつ（Greetings）.pdf
 ===================================
