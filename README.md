@@ -38,3 +38,14 @@ NOVEMBER 13 2026
 Homework - Memorize 10 Vocabs of today 
          - Write 1 Page of "ka / ki" (hiragana)
 ===================================
+
+NOVEMBER 15 2026
+----------------
+
+1 -> VOCAB 10 (N5)
+2 -> ku / ke (hiragana writing)
+
+Homework - Memorize 10 Vocabs of today 
+         - Write 1 Page of "ku / ke" (hiragana)
+         - Memorize Greetinbg_1 JPG
+===================================
