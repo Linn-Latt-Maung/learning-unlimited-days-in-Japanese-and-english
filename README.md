@@ -49,3 +49,13 @@ Homework - Memorize 10 Vocabs of today
          - Write 1 Page of "ku / ke" (hiragana)
          - Memorize Greetinbg_1 JPG
 ===================================
+
+NOVEMBER 16 2026
+----------------
+
+1 -> VOCAB 10 (N5)
+2 -> ko (hiragana writing)
+
+Homework - Memorize 10 Vocabs of today 
+         - Write 1 Page of "ko" (hiragana)
+===================================
