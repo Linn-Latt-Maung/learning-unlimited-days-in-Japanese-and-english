@@ -59,3 +59,12 @@ NOVEMBER 16 2026
 Homework - Memorize 10 Vocabs of today 
          - Write 1 Page of "ko" (hiragana)
 ===================================
+
+NOVEMBER 16 2026
+----------------
+
+1 -> 1 to 10 Number Romaji
+
+
+Homework - Memorize 1 to 10 Number Romaji
+===================================
