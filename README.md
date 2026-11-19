@@ -64,7 +64,22 @@ NOVEMBER 17 2026
 ----------------
 
 1 -> 1 to 10 Number Romaji
-
+2 -> ga / gi / gu / ge / go (hiragana writing)
 
 Homework - Memorize 1 to 10 Number Romaji
+         - Write 1 Page of each "ga / gi / gu / ge / go" (hiragana)
+===================================
+
+NOVEMBER 18 2026
+----------------
+
+Homework - All Recap
+===================================
+
+NOVEMBER 19 2026
+----------------
+
+->
+
+Homework - 
 ===================================
